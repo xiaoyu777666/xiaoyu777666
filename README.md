@@ -1,1 +1,2 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=09F7C0&width=435&lines=%E4%BD%A0%E5%A5%BD%E6%88%91%E6%98%AF%E6%88%91%E5%8F%AB%E5%B0%8F%E8%82%B2;email%EF%BC%9Axiaoyu123%40email.lonteng.top;Discord%EF%BC%9Axiaoyu_lonteng_26978)](https://git.io/typing-svg)
+<div align="center"> <img src="https://metrics.lecoq.io/insights/xiaoyu777666?template=classic&config.timezone=Asia%2FShanghai"> </div>
